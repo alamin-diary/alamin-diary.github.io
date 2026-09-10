@@ -1,0 +1,1 @@
+# alamin-diary.github.io
